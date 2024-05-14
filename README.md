@@ -1,1 +1,5 @@
 ![image](https://github.com/zynpl/Memory-Game-/assets/81883067/0aa31bfb-859a-4467-aa65-2ab29ab0242a)
+![image](https://github.com/zynpl/Memory-Game-/assets/81883067/2f19b335-b7a2-463c-a8d7-46ff81ff1f21)
+![image](https://github.com/zynpl/Memory-Game-/assets/81883067/00295966-7bfd-4c53-a104-ac228f584510)
+![image](https://github.com/zynpl/Memory-Game-/assets/81883067/eb0c6368-0b6b-45f3-a27f-57d902a60e9d)
+![image](https://github.com/zynpl/Memory-Game-/assets/81883067/fa030ffd-df24-4241-b392-bbabf2a4047a)
